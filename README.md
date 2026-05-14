@@ -1,2 +1,2 @@
-# 90MB+pass DL
-90MB+pass DL
+# downloader with split and password option
+folders and name + size + direct links
