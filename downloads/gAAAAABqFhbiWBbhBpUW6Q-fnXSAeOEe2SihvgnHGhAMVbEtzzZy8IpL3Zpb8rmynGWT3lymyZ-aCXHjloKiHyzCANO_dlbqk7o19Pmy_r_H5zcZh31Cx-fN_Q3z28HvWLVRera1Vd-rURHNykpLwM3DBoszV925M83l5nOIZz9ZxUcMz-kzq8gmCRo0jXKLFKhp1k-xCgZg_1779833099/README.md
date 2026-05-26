@@ -1,0 +1,10 @@
+## 📊 مشخصات فایل
+- **نام:** gAAAAABqFhbiWBbhBpUW6Q-fnXSAeOEe2SihvgnHGhAMVbEtzzZy8IpL3Zpb8rmynGWT3lymyZ-aCXHjloKiHyzCANO_dlbqk7o19Pmy_r_H5zcZh31Cx-fN_Q3z28HvWLVRera1Vd-rURHNykpLwM3DBoszV925M83l5nOIZz9ZxUcMz-kzq8gmCRo0jXKLFKhp1k-xCgZg
+- **حجم کل:** 178M
+- **تعداد پارت‌ها:** 2
+
+### 🔗 لینک‌های دانلود مستقیم
+| شماره پارت | لینک دانلود مستقیم |
+| :--- | :--- |
+| gAAAAABqFhbiWBbhBpUW6Q-fnXSAeOEe2SihvgnHGhAMVbEtzzZy8IpL3Zpb8rmynGWT3lymyZ-aCXHjloKiHyzCANO_dlbqk7o19Pmy_r_H5zcZh31Cx-fN_Q3z28HvWLVRera1Vd-rURHNykpLwM3DBoszV925M83l5nOIZz9ZxUcMz-kzq8gmCRo0jXKLFKhp1k-xCgZg.z01 | [🚀 دانلود مستقیم](https://raw.githubusercontent.com/osmaneqadiriane-source/DL-FULL/main/downloads/gAAAAABqFhbiWBbhBpUW6Q-fnXSAeOEe2SihvgnHGhAMVbEtzzZy8IpL3Zpb8rmynGWT3lymyZ-aCXHjloKiHyzCANO_dlbqk7o19Pmy_r_H5zcZh31Cx-fN_Q3z28HvWLVRera1Vd-rURHNykpLwM3DBoszV925M83l5nOIZz9ZxUcMz-kzq8gmCRo0jXKLFKhp1k-xCgZg_1779833099/gAAAAABqFhbiWBbhBpUW6Q-fnXSAeOEe2SihvgnHGhAMVbEtzzZy8IpL3Zpb8rmynGWT3lymyZ-aCXHjloKiHyzCANO_dlbqk7o19Pmy_r_H5zcZh31Cx-fN_Q3z28HvWLVRera1Vd-rURHNykpLwM3DBoszV925M83l5nOIZz9ZxUcMz-kzq8gmCRo0jXKLFKhp1k-xCgZg.z01) |
+| gAAAAABqFhbiWBbhBpUW6Q-fnXSAeOEe2SihvgnHGhAMVbEtzzZy8IpL3Zpb8rmynGWT3lymyZ-aCXHjloKiHyzCANO_dlbqk7o19Pmy_r_H5zcZh31Cx-fN_Q3z28HvWLVRera1Vd-rURHNykpLwM3DBoszV925M83l5nOIZz9ZxUcMz-kzq8gmCRo0jXKLFKhp1k-xCgZg.zip | [🚀 دانلود مستقیم](https://raw.githubusercontent.com/osmaneqadiriane-source/DL-FULL/main/downloads/gAAAAABqFhbiWBbhBpUW6Q-fnXSAeOEe2SihvgnHGhAMVbEtzzZy8IpL3Zpb8rmynGWT3lymyZ-aCXHjloKiHyzCANO_dlbqk7o19Pmy_r_H5zcZh31Cx-fN_Q3z28HvWLVRera1Vd-rURHNykpLwM3DBoszV925M83l5nOIZz9ZxUcMz-kzq8gmCRo0jXKLFKhp1k-xCgZg_1779833099/gAAAAABqFhbiWBbhBpUW6Q-fnXSAeOEe2SihvgnHGhAMVbEtzzZy8IpL3Zpb8rmynGWT3lymyZ-aCXHjloKiHyzCANO_dlbqk7o19Pmy_r_H5zcZh31Cx-fN_Q3z28HvWLVRera1Vd-rURHNykpLwM3DBoszV925M83l5nOIZz9ZxUcMz-kzq8gmCRo0jXKLFKhp1k-xCgZg.zip) |
