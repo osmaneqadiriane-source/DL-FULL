@@ -1,0 +1,11 @@
+## 📊 مشخصات فایل
+- **نام:** gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==
+- **حجم کل:** 257M
+- **تعداد پارت‌ها:** 3
+
+### 🔗 لینک‌های دانلود مستقیم
+| شماره پارت | لینک دانلود مستقیم |
+| :--- | :--- |
+| gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==.z01 | [🚀 دانلود مستقیم](https://raw.githubusercontent.com/osmaneqadiriane-source/DL-FULL/main/downloads/gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==_1780031500/gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==.z01) |
+| gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==.z02 | [🚀 دانلود مستقیم](https://raw.githubusercontent.com/osmaneqadiriane-source/DL-FULL/main/downloads/gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==_1780031500/gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==.z02) |
+| gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==.zip | [🚀 دانلود مستقیم](https://raw.githubusercontent.com/osmaneqadiriane-source/DL-FULL/main/downloads/gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==_1780031500/gAAAAABqGR5Gf06BWOsvHEtubU_UX1CdjQBB4D6D12r2i-1DJ9aE5tB-Sm8PFlDXmEvewKHkU1iqMd5qyPfvk1Owaifa00PxmL4_64OGk8KC4rlO8j1jNHpq5z-YfL4cwnK_b3eW4tsmgBMGm6rNTgTkogoZuL22pQ==.zip) |
